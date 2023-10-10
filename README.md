@@ -1,1 +1,0 @@
-# LeeTaeGue_memorial_hall
